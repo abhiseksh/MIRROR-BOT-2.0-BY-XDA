@@ -139,5 +139,5 @@ https://t.me/XdaAbhi
 ------
 
 
-### 🙂🙂🙂 ENJOY YOUR PERSONAL LEECH BOT 🙂🙂🙂
+### 🙂🙂🙂 ENJOY YOUR PERSONAL SUPER LEECH&MIRROR BOT 🙂🙂🙂
 
